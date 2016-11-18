@@ -1,2 +1,2 @@
-# Litter-by-Litter
+# Litter-By-Litter
 Every day is new for me.
